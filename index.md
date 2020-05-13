@@ -23,4 +23,5 @@ Contextually, nowadays, the popularity of a site is prioritized than is growth. 
 <h3>In conclusion</h3>
 
 Social media is playing an essential role for yoga teachers because of its broader acceptability in the current context. While the world is under global lockdown, <a href="https://rishikeshvinyasayogaschool.com/2020/04/17/what-to-do-in-your-free-time-during-global-locked-down/">learn the various activities you can do</a> with great ease now.
+
 Write to us <a href="mailto:rishikeshvinyasayogaschool@gmail.com">rishikeshvinyasayogaschool@gmail.com</a>.
